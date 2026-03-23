@@ -1,9 +1,10 @@
-<img width="1000" height="133" alt="image" src="https://github.com/user-attachments/assets/63bd2917-d223-4dfd-bef0-e946d47d1164" />
+<img width="1000" height="200" alt="image" src="https://github.com/user-attachments/assets/b7ffe071-254f-40e9-a07e-255590659656" />
+
 
 <h1></h1>
 <p align="center"><strong>Hello!</strong>
 
-<p align="center">-I'm Till, Ollie, or Zanka. I'm a fullkin of all 3 and I'd appreciate it if you treated me as such. ^_^ I'm the host, so I'll be the one you see most of the time on PonyTown. On the topic of that, I DON'T REALLY HAVE MANY SOCIALS🥀 I'm usually on PonyTown's safe server 2 or Discord💔 PLEASE if you want to friend me there let me know who you are/remind me who you are because I've had BAD experiences,, and simply because I don't feel like sharing my Discord to strangers sorry. 
+<p align="center">-I'm Till, Ollie, Venom Dough, or Zanka. I'm a fullkin of all 4 and I'd appreciate it if you treated me as such. ^_^ I'm the host, so I'll be the one you see most of the time on PonyTown. On the topic of that, I DON'T REALLY HAVE MANY SOCIALS🥀 I'm usually on PonyTown's safe server 2 or Discord💔 PLEASE if you want to friend me there let me know who you are/remind me who you are because I've had BAD experiences,, and simply because I don't feel like sharing my Discord to strangers sorry. 
 
 <p align="center">-I don't really have any DNIs,, it's mainly stuff I want you knowing BEFORE you interact with me. I'm a sensitive loser who gets triggered by the sheer mention of vomit or anything related to it simply because I have TERRIBLE emetophobia🥺 I don't really enjoy mentions of rape either because I'm a victim myself. I also won't really reply if I'm with friends/my partner solely because I don't have public chat open because I'm an idiot and forget to open it💀 Same thing goes for if I'm alone(which isn't often.) If I DO interact, I might be a little mean, sorry again. Could you tell I was also gonna warn you about my frequent apologies,, I also have dyslexia.👍
 
