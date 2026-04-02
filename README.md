@@ -1,4 +1,4 @@
-<img width="1199" height="300" alt="image" src="https://github.com/user-attachments/assets/e912ac0e-ef57-40db-8a4f-cc3a738a3db1" />
+<img width="1199" height="300" alt="image" src="https://github.com/user-attachments/assets/137a5cac-96b8-4b25-9147-f410c4d6c71f" />
 
 
 
@@ -9,7 +9,7 @@
 <p align="center">-I'm chronically online I'm afraid💔 I'm also kind of mean unintentionally sorry. Just always iwc near me.
 <p align="center">I'm 6teen, soon to be 7teen,,🥀 I use He/They but heavily prefer masc pronouns.
   
-<img width="1199" height="300" alt="image" src="https://github.com/user-attachments/assets/2528ec61-8247-4df2-a069-15df29fdb88d" />
+
 
 <p align="center"><strong>DNI;</strong>
 
