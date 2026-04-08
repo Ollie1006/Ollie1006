@@ -7,7 +7,7 @@
 
 <p align="center">-I'm Oliver. Or Zanka/Till/Venom Dough. I don't quite mind whichever one you use. You can just make something up too ig if you'd like. I'm a fullkin of all 4 and would appreciate it if you treated me as such. If you dunno what it means PLEASE just search it up.
 <p align="center">-I'm chronically online I'm afraid💔 I'm also kind of mean unintentionally sorry. Just always iwc near me.
-<p align="center">I'm 6teen, soon to be 7teen,,🥀 I use He/They but heavily prefer masc pronouns.
+<p align="center">I'M 17!!!!! I use He/They but heavily prefer masc pronouns.
   
 
 
