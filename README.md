@@ -11,7 +11,7 @@
 
 
 <p align="center"><img width="90" height="27" alt="image" src="https://github.com/user-attachments/assets/7af34044-ee7e-4b17-b337-4378ea60e042" /> 
-  Till or Oliver.         He / They.             Fullkin
+  till or oliver.         he / they.             fullkin
 
   
 <p align="center">
