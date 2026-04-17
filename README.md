@@ -1,22 +1,18 @@
-<img width="1199" height="300" alt="image" src="https://github.com/user-attachments/assets/137a5cac-96b8-4b25-9147-f410c4d6c71f" />
+<p align="center"><img width="788" height="1000" alt="image" src="https://github.com/user-attachments/assets/0f8fac96-7562-4caa-94ef-b3e08c00eb7d" />
 
 
 
-<h1></h1>
-<p align="center"><strong>About me;</strong>
-
-<p align="center">-I'm Oliver. Or Zanka/Till/Venom Dough. I don't quite mind whichever one you use. You can just make something up too ig if you'd like. I'm a fullkin of all 4 and would appreciate it if you treated me as such. If you dunno what it means PLEASE just search it up.
-<p align="center">-I'm chronically online I'm afraid💔 I'm also kind of mean unintentionally sorry. Just always iwc near me.
-<p align="center">I'M 17!!!!! I use He/They but heavily prefer masc pronouns.
-  
 
 
-<p align="center"><strong>DNI;</strong>
+<img width="400" height="100" alt="image" src="https://github.com/user-attachments/assets/54dedb13-0b91-475a-bdff-0f01292d50f1" />
 
-<p align="center">-Basic DNI criteria, you get the point.
-<p align="center">-I do NOT shame fandoms unless they are severely problematic, so I won't have any fandoms on here as of now unless I remember any.
-<p align="center">-Not necessarily a DNI but the mentions of vomit/rape get you blocked or hid for 15 minutes.
-<p align="center">-You know who you are.
+
+<p align="center"><img width="217" height="20" alt="image" src="https://github.com/user-attachments/assets/4910c065-76c1-4ddd-878f-5cbcf54a7f43" />
+
+
+<p align="center"><img width="90" height="27" alt="image" src="https://github.com/user-attachments/assets/7af34044-ee7e-4b17-b337-4378ea60e042" /> 
+  Till or Oliver.         He / They.             Fullkin
+
   
 <p align="center">
   <a href="https://spotify-github-profile.kittinanx.com/api/view?uid=31xngphweoffqg3cwjtswcycjghm&redirect=true">
