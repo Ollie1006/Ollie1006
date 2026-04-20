@@ -1,17 +1,12 @@
-<p align="center"><img width="788" height="1000" alt="image" src="https://github.com/user-attachments/assets/0f8fac96-7562-4caa-94ef-b3e08c00eb7d" />
+<p align="center"><img width="1000" height="402" alt="image" src="https://github.com/user-attachments/assets/afe428a2-092c-48ec-9771-cd9fb9532c6f" />
 
 
 
 
-
-<img width="400" height="100" alt="image" src="https://github.com/user-attachments/assets/54dedb13-0b91-475a-bdff-0f01292d50f1" />
-
-
-<p align="center"><img width="217" height="20" alt="image" src="https://github.com/user-attachments/assets/4910c065-76c1-4ddd-878f-5cbcf54a7f43" />
+<p align="center">fandom always iwec. im very standoffish.
 
 
-<p align="center"><img width="90" height="27" alt="image" src="https://github.com/user-attachments/assets/7af34044-ee7e-4b17-b337-4378ea60e042" /> 
-  till or oliver.         he / they.             fullkin
+<p align="center">please dni if you find it funny kyoko "fr checked if i was a boy" /tar
 
   
 <p align="center">
